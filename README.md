@@ -1,0 +1,1 @@
+<!-- bu loyiha git hub haqida qisqacha utilgan dars -->
